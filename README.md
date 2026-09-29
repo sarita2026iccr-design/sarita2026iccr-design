@@ -1,4 +1,4 @@
-# Hi there, I'm XYZ 👋
+# Hi there, I'm sarita 👋
 
 ### Data Analyst | B.Voc Data Science & Analytics Graduate
 
